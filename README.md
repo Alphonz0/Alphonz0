@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **aufanoorfalah@gmail.com**
 
-- ⚡ Fun fact **Belajar itu mudah kok, tapi lebih mudah lagi belajar kalau punya modal**
+- ⚡ Fun fact **Belajar itu mudah kok, tapi lebih encer lagi belajar kalau punya moral**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
